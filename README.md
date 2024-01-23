@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Muhammad-Abdullah990
-- 👀 I’m interested in student
+- 👀 I’m interested in PROFESSIONALS
 - 🌱 I’m currently learning software and Machine learning engineering
 - 💞️ I’m looking to collaborate on with engineers (software and ML too)
 - 📫 How to reach me ...
